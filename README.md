@@ -10,7 +10,7 @@
 
 - 💬 Ask me about **Anything**
 
-- 📫 How to reach me **discord : hanicraft#0085 email : mohamadhanijanaty85@gmail.com reddit : u/HaniSoftwares**
+- 📫 How to reach me **email : mohamadhanijanaty85@gmail.com**
 
 - ⚡ Fun fact **i started programming at age 10 by making games in unity**
 
